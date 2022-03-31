@@ -1,1 +1,2 @@
-Adrian Hing 
+Adrian Hing
+hinga@oregonstate.edu
